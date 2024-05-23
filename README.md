@@ -1,8 +1,10 @@
 ## nicknames ?
 ```python
 . # Vincent > main / sure.
-. # Moony / Moonshine > Only Sunny can call me this. (aka my online brother.)
+. # Moony / Moonshine / Dearie > Only Sunny can call me this. (aka my online brother.)
 . # Red / Rouge > again main / sure.
+. # Wife/Husband/Pet names > only my partner/p can call me these (both platonically and romantically by choice.)
+. # Any inappropriate nicknames towards me will be ignored.
 ```
 
 
