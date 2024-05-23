@@ -1,3 +1,5 @@
+![slost4r](https://github.com/stzrxienn/stzrxienn/assets/155057376/8cb4855a-f8fd-45ac-b4af-ae85b8bb401f)
+
 ## nicknames ?
 ```python
 . # Vincent > main / sure.
@@ -10,7 +12,6 @@
 
 
 ![download (2)](https://github.com/stzrxienn/stzrxienn/assets/155057376/c6556c1d-6bb9-47de-aaf5-8627997a5558)
-
 ## ships i do not want inting with me .
 
 ```python
