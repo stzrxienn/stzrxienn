@@ -11,7 +11,7 @@
 
 
 
-![download (2)](https://github.com/stzrxienn/stzrxienn/assets/155057376/c6556c1d-6bb9-47de-aaf5-8627997a5558)
+![tumblr_ommtu9mLKk1vart62o1_r3_400](https://github.com/stzrxienn/stzrxienn/assets/155057376/868a9405-2420-4da6-9037-20c8e6fb7aed)
 ## ships i do not want inting with me .
 
 ```python
