@@ -2,7 +2,7 @@
 
 
 ## nicknames ✩
-``` python
+```
 . Vincent / kitsu > main / sure.
 . Moony / Moonshine / Dearie > Only Sunny can call me this. (aka my online brother.)
 . Red / Rouge / Raiden > again main / sure.
@@ -17,7 +17,7 @@
 
 ## ships i do not want inting with me ✦
 
-``` python
+```
 . sonamy - "but they're canon..!" i dont care.
 . shadouge - i dont see them getting romantically involved w/ eachother since Rouge is more interested in jewelry/gems/valuable items than relationships.
 . tails x cream/child (9 and below) x 10 and above - no, they're allowed to have crushes (in a **platonic** way.) on eachother although.
