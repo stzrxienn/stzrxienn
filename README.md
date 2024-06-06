@@ -2,7 +2,7 @@
 
 ## nicknames ✩
 ```python
-. # Vincent > main / sure.
+. # Vincent / kitsu > main / sure.
 . # Moony / Moonshine / Dearie > Only Sunny can call me this. (aka my online brother.)
 . # Red / Rouge / Raiden > again main / sure.
 . # Wife/Husband/Pet names > only my partner/p can call me these (both platonically and romantically by choice.)
