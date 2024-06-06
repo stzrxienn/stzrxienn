@@ -1,4 +1,5 @@
-![slost4r](https://github.com/stzrxienn/stzrxienn/assets/155057376/8cb4855a-f8fd-45ac-b4af-ae85b8bb401f)
+![Like_ cyberpunkonline](https://github.com/stzrxienn/stzrxienn/assets/155057376/e5d79768-97ba-4e4f-8314-50ea6fbe0660)
+
 
 ## nicknames ✩
 ```python
@@ -12,7 +13,8 @@
 
 
 
-![tumblr_ommtu9mLKk1vart62o1_r3_400](https://github.com/stzrxienn/stzrxienn/assets/155057376/868a9405-2420-4da6-9037-20c8e6fb7aed)
+![download (5)](https://github.com/stzrxienn/stzrxienn/assets/155057376/230ba6fc-91ed-4ba3-8df8-3233ca4128d4)
+
 ## ships i do not want inting with me ✦
 
 ```python
