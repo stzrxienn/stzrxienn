@@ -4,7 +4,7 @@
 ```python
 . # Vincent > main / sure.
 . # Moony / Moonshine / Dearie > Only Sunny can call me this. (aka my online brother.)
-. # Red / Rouge > again main / sure.
+. # Red / Rouge / Raiden > again main / sure.
 . # Wife/Husband/Pet names > only my partner/p can call me these (both platonically and romantically by choice.)
 . # bbg/bby/pookie > only pookies or close friends can call me these.
 . # Any inappropriate nicknames towards me will be ignored.
