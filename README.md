@@ -1,7 +1,7 @@
 ![Like_ cyberpunkonline](https://github.com/stzrxienn/stzrxienn/assets/155057376/e5d79768-97ba-4e4f-8314-50ea6fbe0660)
 
 
-## nicknames ✩
+## @nicknames ? ✩
 ```python
 . #Vincent / kitsu > main / sure.
 . #Moony / Moonshine / Dearie > Only Sunny can call me this. (aka my online brother.)
@@ -15,14 +15,15 @@
 
 ![download (5)](https://github.com/stzrxienn/stzrxienn/assets/155057376/230ba6fc-91ed-4ba3-8df8-3233ca4128d4)
 
-## ships i do not want inting with me ✦
+## @ships i do NOT want to int with me . ✦
 
 ```python
-. #sonamy - "but they're canon..!" i dont care.
-. #shadouge - i dont see them getting romantically involved w/ eachother since Rouge is more interested in jewelry/gems/valuable items than relationships.
-. #tails x cream/child (9 and below) x 10 and above - no, they're allowed to have crushes (in a **platonic** way.) on eachother although.
+. #sonic x amy - "but they're canon..!" i dont care.
+. #shadow x rouge - i see them as siblings.
+. #tails x cream/child (9 and below) x 10 and above - no, they're allowed to have crushes on eachother although.
 . #rouge x 17 and below - gross.
-. #amy x 14 and above - "but they removed the ages!!" i dont care, she's still 12 whether you like it or not.
+. #amy x 15 and above - "but they removed the ages!!" i dont care, she's still 12 whether you like it or not.
 . #adult (19 and above) x child (13 and below) - no.
-. #sonic x rouge - she's 18 and he's 15.  
+. #sonic x rouge - she's 18 and he's 15.
+. #shadow x amy  - no.
 ```
