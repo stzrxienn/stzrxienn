@@ -4,7 +4,7 @@
 ## @nicknames ? ✩
 ```python
 . #Vincent/Tails/Red - main/go ahead.
-. #Raiden/Rouge/Star - main.
+. #Raiden/Quinn/Star - main.
 . #Moony/Moonshine/Dearie - only sunny (my big brother/p).
 . #pet names/husband/wife - only my partner can call me these.
 . #bbg/bby/pookie - only close/pookies.
