@@ -1,7 +1,7 @@
 ![Like_ cyberpunkonline](https://github.com/stzrxienn/stzrxienn/assets/155057376/e5d79768-97ba-4e4f-8314-50ea6fbe0660)
 
 
-## @nicknames ? ✩
+## @nicknames ? ♥
 ```python
 . #Vincent/Tails/Red - main/go ahead.
 . #Raiden/Quinn/Star - main.
